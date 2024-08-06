@@ -15,4 +15,3 @@
 ![d2ucaxr-dc8a1d89-d98c-47c4-8f22-ca780707c684](https://github.com/user-attachments/assets/6174eb59-b0ad-49d8-aa4b-ac252af04a73)
 
 ![proud_to_be_a_commie__stamp__by_kpocta_d118mif-fullview](https://github.com/user-attachments/assets/13f5374b-8bd3-4e82-bfa3-36550c1add0f)
-![legalize_marijuana_by_atheosemanon_d48oqmh-fullview](https://github.com/user-attachments/assets/3cbfeb19-5101-4a93-8b21-dc4e0aeab399)
