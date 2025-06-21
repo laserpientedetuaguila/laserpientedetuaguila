@@ -18,5 +18,4 @@
 ![dfkk4e6-b7cebfea-e254-4550-89a0-1646b63e53ba](https://github.com/user-attachments/assets/be083869-d54c-4030-a0e7-82b011b14836)
 ![anarcho_syndicalism_stamp_by_christiansocialism_d2b7pn4-fullview](https://github.com/user-attachments/assets/4c9d94be-e355-49a0-b1b0-775bcd1e212c)
 ![d2mwd9z-d8a0c4a7-2800-43e9-baef-5c058378709c](https://github.com/user-attachments/assets/aa1cfdf3-4f79-4111-9723-88a4cef8824e)
-![image](https://github.com/user-attachments/assets/d8b8478c-9810-4634-85d6-163176baa74b)
 ![d6h590q-1efd5466-3c20-4ff1-8017-5822b9c9b1ad](https://github.com/user-attachments/assets/d79d0dc7-26d1-4f31-9bc6-2d6e423d7ff7)
