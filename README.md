@@ -2,11 +2,12 @@ multifandom; mostly hetalia, countryhumans, dandys world(sigh) and utdr. ask 4 m
 
 big mexico x chile enthusiast since 2015 dont even joke lad
 
-![d1x52v9-48f3d5c4-86a7-4319-b1b4-1cee52992c3d](https://github.com/user-attachments/assets/e1e81ddc-79dc-4731-846b-b19bdb4d9012)
-![smexy_mexican_by_zutaraalltheway_d1en5ag-fullview](https://github.com/user-attachments/assets/d9bd71bb-974f-43b2-9f9b-a1f626b62b88)
-  <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/5a9979c9-cb2a-49ae-9a98-24adf5741cd7" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/5a9979c9-cb2a-49ae-9a98-24adf5741cd7" />
 <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/f21f379d-18c0-48fb-abfd-344981a4cd0d" />
 <img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/8f6db3d0-751d-4bd7-8c64-daae8665c1ee" />
+<img width="60" height="48" alt="image" src="https://github.com/user-attachments/assets/102c4ccf-5d89-41c5-9249-b89e46b0939f" />
+<img width="125" height="85" alt="image" src="https://github.com/user-attachments/assets/0f51d9e1-7781-4123-9efd-53535f729f7b" />
+
 
 ![d7qgdb1-eebefd61-b400-4626-9e30-beded5a5988e](https://github.com/user-attachments/assets/5b3f1640-b9d6-4214-a986-846da7dc257d)
 ![dcavcbq-23760b24-097a-4510-9fa6-ac4d66badd32](https://github.com/user-attachments/assets/7563afdf-425a-4b29-967a-9bb081aa7366)
