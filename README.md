@@ -27,3 +27,4 @@ big mexico x chile enthusiast since 2015 dont even joke lad
 ![d2mwd9z-d8a0c4a7-2800-43e9-baef-5c058378709c](https://github.com/user-attachments/assets/aa1cfdf3-4f79-4111-9723-88a4cef8824e)
 
 ![Screenshot_2025-07-09-20-30-09-965](https://github.com/user-attachments/assets/fab9db51-7556-4c10-a252-32d27b4ad76a)
+yay
