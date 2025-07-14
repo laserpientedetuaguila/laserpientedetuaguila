@@ -1,3 +1,7 @@
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/5a9979c9-cb2a-49ae-9a98-24adf5741cd7" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/f21f379d-18c0-48fb-abfd-344981a4cd0d" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/8f6db3d0-751d-4bd7-8c64-daae8665c1ee" />
+
 multifandom; mostly hetalia, countryhumans, dandys world(sigh) and utdr. ask 4 more info! im a huge history/geography nerd and enjoy countries culture and stuffOk okay
 
 big mexico x chile enthusiast since 2015 dont even joke lad
