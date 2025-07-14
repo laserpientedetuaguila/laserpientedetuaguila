@@ -1,4 +1,4 @@
-multifandom; mostly hetalia, countryhumans and utdr. ask 4 more info! im a huge history nerd and enjoy countries culture and stuff
+multifandom; mostly hetalia, countryhumans and utdr. ask 4 more info! im a huge history nerd and enjoy countries culture and stuff Ok okay
 
 ![d1x52v9-48f3d5c4-86a7-4319-b1b4-1cee52992c3d](https://github.com/user-attachments/assets/e1e81ddc-79dc-4731-846b-b19bdb4d9012)
 ![smexy_mexican_by_zutaraalltheway_d1en5ag-fullview](https://github.com/user-attachments/assets/d9bd71bb-974f-43b2-9f9b-a1f626b62b88)
