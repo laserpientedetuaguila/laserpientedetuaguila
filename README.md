@@ -1,4 +1,4 @@
-multifandom; mostly hetalia, countryhumans and utdr. ask 4 more info! im a huge history/geography nerd and enjoy countries culture and stuffOk okay
+multifandom; mostly hetalia, countryhumans, dandys world(sigh) and utdr. ask 4 more info! im a huge history/geography nerd and enjoy countries culture and stuffOk okay
 
 big mexico x chile enthusiast since 2015 dont even joke lad
 
