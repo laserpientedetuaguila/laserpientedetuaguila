@@ -26,4 +26,9 @@ big mexico x chile enthusiast since 2015 dont even joke lad
 ![anarcho_syndicalism_stamp_by_christiansocialism_d2b7pn4-fullview](https://github.com/user-attachments/assets/4c9d94be-e355-49a0-b1b0-775bcd1e212c)
 ![d2mwd9z-d8a0c4a7-2800-43e9-baef-5c058378709c](https://github.com/user-attachments/assets/aa1cfdf3-4f79-4111-9723-88a4cef8824e)
 
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6f0a1244-1022-4712-aa17-d655e222cc59" />
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/eaa3161c-daf1-4df6-a0cc-1c0a0ef15189" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0c417c86-ec00-4602-9191-a3213d628bf0" />
+
+
 ![Screenshot_2025-07-09-20-30-09-965](https://github.com/user-attachments/assets/fab9db51-7556-4c10-a252-32d27b4ad76a)
