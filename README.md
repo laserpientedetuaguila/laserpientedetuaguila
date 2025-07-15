@@ -29,11 +29,12 @@ big mexico x chile enthusiast since 2015 dont even joke lad
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/32b65874-b606-4265-b535-7913f0f00c9a" /> ![d1ljl3h-d1c3dd18-3705-4085-83dd-e161a3addf55](https://github.com/user-attachments/assets/49d8356a-031e-486f-baaa-14783647a354)
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2c96f2ec-859e-48e1-a698-895a2adf6661" />
 <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/81c5ed0e-e5ca-452e-9bd7-0cc3874092a4" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc202cbc-1315-45c8-a9ec-8850ff33ece5" />
-
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ab3e5de5-d029-4a66-82a2-9e4064403e29" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/276e16f8-5066-4070-8b59-0835cda88291" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d910d8ab-d17c-4e40-9847-abcf8c1565d6" />
 
+![df50kdb-e6e70ac1-9652-4b2c-ac35-946ad544c984](https://github.com/user-attachments/assets/2d8e2f4f-5676-4cd7-b9d8-f4382c130e6d)
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d910d8ab-d17c-4e40-9847-abcf8c1565d6" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/276e16f8-5066-4070-8b59-0835cda88291" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/32fb6490-2f62-47b9-a8cf-2d753a91638c" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc202cbc-1315-45c8-a9ec-8850ff33ece5" />
 
 ![Screenshot_2025-07-09-20-30-09-965](https://github.com/user-attachments/assets/fab9db51-7556-4c10-a252-32d27b4ad76a)
