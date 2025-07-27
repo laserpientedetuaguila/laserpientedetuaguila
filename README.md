@@ -35,7 +35,7 @@ big mexico x chile enthusiast since 2015 dont even joke lad
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d910d8ab-d17c-4e40-9847-abcf8c1565d6" />
 ![d81jjqk-9459516a-fbab-4deb-bc74-9a2da5b0bc0b](https://github.com/user-attachments/assets/c28eb14b-be5e-4737-bbc7-5b7e18558a65)
 ![djioyd2-f708477c-4589-4d10-847d-14d30e9cea81](https://github.com/user-attachments/assets/ddbabbfc-a58e-4494-a581-be8967f8c792)
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc202cbc-1315-45c8-a9ec-8850ff33ece5" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/15e80ee7-3224-4c88-9f69-b0e0b713aa6a" />
 
 ![d6lqsxc-28d3bbe4-4999-46f2-823c-e0c46b27c8d3](https://github.com/user-attachments/assets/5c055def-5a4f-455e-879b-d27474b15969)
 ![d6yd6ze-8b7c96f4-28a2-4270-acd9-f3eb1a2efc34](https://github.com/user-attachments/assets/a47fd564-a69a-495b-8a7c-5b67f1bcf6d8)
