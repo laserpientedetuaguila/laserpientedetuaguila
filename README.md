@@ -37,12 +37,15 @@ big mexico x chile enthusiast since 2015 dont even joke lad
 ![djioyd2-f708477c-4589-4d10-847d-14d30e9cea81](https://github.com/user-attachments/assets/ddbabbfc-a58e-4494-a581-be8967f8c792)
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc202cbc-1315-45c8-a9ec-8850ff33ece5" />
 
-Ridin' 'round town, they gon' feel this one
-Ridin' 'round town, they gon' feel this one
-Ridin' 'round town, they gon' feel this one
-Ridin'-ridin' 'round town, they gon' feel this one
-Got my, got my, got my, got my eyes open (Oh, oh, oh)
-Got my, got my, got my eyes open
-Got my, got my, got my, got my eyes open (Oh, oh, oh)
-Got my eyes open
+![dk0tr7l-9b99319e-09fb-4fc4-9734-3b64c0618c1b](https://github.com/user-attachments/assets/7fc166a9-d0ef-4f98-8bc1-51d5740c25d3)
+![d6lqsxc-28d3bbe4-4999-46f2-823c-e0c46b27c8d3](https://github.com/user-attachments/assets/5c055def-5a4f-455e-879b-d27474b15969)
+![d6yd6ze-8b7c96f4-28a2-4270-acd9-f3eb1a2efc34](https://github.com/user-attachments/assets/a47fd564-a69a-495b-8a7c-5b67f1bcf6d8)
+![d6lq31n-5226e988-1926-4595-8a4f-f8cad39cfa98](https://github.com/user-attachments/assets/12f0d858-8b95-4c58-8202-9ecf7d2ee7cb)
+![d6lq31n-5226e988-1926-4595-8a4f-f8cad39cfa98](https://github.com/user-attachments/assets/12f0d858-8b95-4c58-8202-9ecf7d2ee7cb)
+![d6lq31n-5226e988-1926-4595-8a4f-f8cad39cfa98](https://github.com/user-attachments/assets/12f0d858-8b95-4c58-8202-9ecf7d2ee7cb)
+![d6lq31n-5226e988-1926-4595-8a4f-f8cad39cfa98](https://github.com/user-attachments/assets/12f0d858-8b95-4c58-8202-9ecf7d2ee7cb)
+![d6lq31n-5226e988-1926-4595-8a4f-f8cad39cfa98](https://github.com/user-attachments/assets/12f0d858-8b95-4c58-8202-9ecf7d2ee7cb)
+-(we are the alfredlings please feed us!)
+
+
 ![Screenshot_2025-07-09-20-30-09-965](https://github.com/user-attachments/assets/fab9db51-7556-4c10-a252-32d27b4ad76a)
