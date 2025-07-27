@@ -20,7 +20,7 @@ big mexico x chile enthusiast since 2015 dont even joke lad
 ![d6mtusn-364c802d-c584-4793-b49d-521ca4a0ab2b](https://github.com/user-attachments/assets/72f86c32-778c-4f72-aafc-b25b60f35c30)
 ![d767vg8-63a84ae5-b0ee-4f84-8c0c-2f4c3e0b606e](https://github.com/user-attachments/assets/55b426a8-5d36-45fd-8316-372eb41163f1)
 
-![355312162-6174eb59-b0ad-49d8-aa4b-ac252af04a73](https://github.com/user-attachments/assets/82c5f398-4fc7-4119-9902-fd60f6005337)
+![dk0tr7l-9b99319e-09fb-4fc4-9734-3b64c0618c1b](https://github.com/user-attachments/assets/7fc166a9-d0ef-4f98-8bc1-51d5740c25d3)
 ![dfkk3va-7459c59b-354d-4021-a2b3-3bf9d5073ee1](https://github.com/user-attachments/assets/e413d7bc-50c7-407f-b272-cc90caa731ad)
 ![dfkk4e6-b7cebfea-e254-4550-89a0-1646b63e53ba](https://github.com/user-attachments/assets/be083869-d54c-4030-a0e7-82b011b14836)
 ![anarcho_syndicalism_stamp_by_christiansocialism_d2b7pn4-fullview](https://github.com/user-attachments/assets/4c9d94be-e355-49a0-b1b0-775bcd1e212c)
@@ -37,7 +37,6 @@ big mexico x chile enthusiast since 2015 dont even joke lad
 ![djioyd2-f708477c-4589-4d10-847d-14d30e9cea81](https://github.com/user-attachments/assets/ddbabbfc-a58e-4494-a581-be8967f8c792)
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fc202cbc-1315-45c8-a9ec-8850ff33ece5" />
 
-![dk0tr7l-9b99319e-09fb-4fc4-9734-3b64c0618c1b](https://github.com/user-attachments/assets/7fc166a9-d0ef-4f98-8bc1-51d5740c25d3)
 ![d6lqsxc-28d3bbe4-4999-46f2-823c-e0c46b27c8d3](https://github.com/user-attachments/assets/5c055def-5a4f-455e-879b-d27474b15969)
 ![d6yd6ze-8b7c96f4-28a2-4270-acd9-f3eb1a2efc34](https://github.com/user-attachments/assets/a47fd564-a69a-495b-8a7c-5b67f1bcf6d8)
 ![d6lq31n-5226e988-1926-4595-8a4f-f8cad39cfa98](https://github.com/user-attachments/assets/12f0d858-8b95-4c58-8202-9ecf7d2ee7cb)
