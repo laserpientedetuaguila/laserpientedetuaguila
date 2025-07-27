@@ -44,7 +44,7 @@ big mexico x chile enthusiast since 2015 dont even joke lad
 ![d6lq31n-5226e988-1926-4595-8a4f-f8cad39cfa98](https://github.com/user-attachments/assets/12f0d858-8b95-4c58-8202-9ecf7d2ee7cb)
 ![d6lq31n-5226e988-1926-4595-8a4f-f8cad39cfa98](https://github.com/user-attachments/assets/12f0d858-8b95-4c58-8202-9ecf7d2ee7cb)
 ![d6lq31n-5226e988-1926-4595-8a4f-f8cad39cfa98](https://github.com/user-attachments/assets/12f0d858-8b95-4c58-8202-9ecf7d2ee7cb)
--(we are the alfredlings please feed us!)
+<(we are the alfredlings please feed us!)
 
 
 ![Screenshot_2025-07-09-20-30-09-965](https://github.com/user-attachments/assets/fab9db51-7556-4c10-a252-32d27b4ad76a)
