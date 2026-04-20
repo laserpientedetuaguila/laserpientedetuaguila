@@ -6,4 +6,6 @@
 
 I hated it.
 
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/8efd53f1-682c-45d8-8598-bf86b14353d7" />
+<img width="1000" height="580" alt="games" src="https://github.com/user-attachments/assets/7022a61b-8d28-4ca9-845f-6ef7383826c0" />
+
+https://github.com/user-attachments/assets/84837274-f36a-468d-b187-770d58f64ce8
